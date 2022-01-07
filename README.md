@@ -1,4 +1,4 @@
-# JEÉSSIKA FRANCO
+# JÉSSIKA FRANCO
 
 - 👋 Olá, sou @jkfallout
 - 👀 Estou interessado em Aprimoramento
